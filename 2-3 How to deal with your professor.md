@@ -21,18 +21,17 @@ Giáo sư lớn tuổi, thường là full professor, khi đó không còn áp l
 ### 2. Thỏa thuận với giáo 
 Một điều hết sức lưu ý với các bạn đó là cần nắm rõ điều kiện tốt nghiệp của mình. Điều bạn cần làm là lên lịch hẹn một buổi nói chuyện riêng. Trong buổi nói chuyện đó hỏi rõ về điều kiện tốt nghiệp là gì? Bao nhiêu bài báo? Khi nào được bảo vệ lần 1, lần 2... Nếu quá trình review quá lâu, hoặc giả giáo sư quá bận thì làm thế nào? Điều kiện nộp báo journal, đi hội nghị hàng năm? Việc liên kết làm việc với các nhóm khác như thế nào? Lương lậu bao nhiêu? 
 
-Các câu hỏi quan trọng khúc mắc nên gặp trực tiếp, nói truyện trực tiếp, chứ không nên nói qua email (trừ trường hợp bất khả kháng). Người ta nói bút sa gà chết mà. 
+Các câu hỏi quan trọng khúc mắc nên gặp trực tiếp, nói truyện trực tiếp, chứ không nên nói qua email (trừ trường hợp bất khả kháng). Người ta nói bút sa gà chết mà. Nhưng cũng đồng nghĩa, sau mỗi cuộc thảo luận trên bạn nên viết lại tóm tắt những việc giáo và bạn cùng đồng thuận và gửi lại giáo bằng email. Hầu hết các giáo sẽ không reply lại email này. Tuy nhiên, giáo sẽ nhớ, và email này sẽ làm cái mốc để đánh giá và deal lại trong tương lai về điều kiện tốt nghiệp cũng như paper của bạn. 
 
-Nhưng cũng đồng nghĩa, sau mỗi cuộc thảo luận trên bạn nên viết lại tóm tắt những việc giáo và bạn cùng đồng thuận và gửi lại giáo bằng email. Hầu hết các giáo sẽ không reply lại email này. Tuy nhiên, giáo sẽ nhớ, và email này sẽ làm cái mốc để đánh giá và deal lại trong tương lai về điều kiện tốt nghiệp cũng như paper của bạn. 
-
-Để có thể deal được với giáo sư, điều quan trọng đầu tiên là bạn phải có gì đó trong tay. Deal là một quá trình trao đổi, vì thế mình cần phải có cái gì đó, achieve một mức nào đó để có thể ngồi vào bàn thương lượng. Dựa trên tiêu chí là hợp lý, hợp tình, không quá, thì kiểu gì thì kiểu bạn cũng sẽ có được một thỏa thuận tốt hơn ở mức không deal. 
-Thứ 2, phần lớn việc deal với giáo, giáo là người thắng bởi ổng là người nắm phần chuôi. Nắm điều kiện bạn tốt nghiệp, là người trả tiền cho bạn. 
+Để có thể deal được với giáo sư, điều quan trọng đầu tiên là bạn phải có gì đó trong tay. Deal là một quá trình trao đổi, vì thế mình cần phải có cái gì đó, achieve một mức nào đó để có thể ngồi vào bàn thương lượng. Dựa trên tiêu chí là hợp lý, hợp tình, không quá, thì kiểu gì thì kiểu bạn cũng sẽ có được một thỏa thuận tốt hơn ở mức không deal. Thứ 2, phần lớn việc deal với giáo, giáo là người thắng bởi ổng là người nắm phần chuôi. Nắm điều kiện bạn tốt nghiệp, là người trả tiền cho bạn. Vì thế không nhết nhất quyết được hết về phần mình, mà đôi khi vừa đủ sẽ tốt hơn hẳn. 
 
 #### - Deal về revise báo. 
 Báo đã nằm trên kệ của giáo mấy tháng trời mà không có phản hồi gì cả? Bước đầu tiên, nhắc khéo. Mội buổi seminar hãy hỏi giáo, và hỏi xem chừng nào sẽ có bản revised. Tiếp theo, nếu vẫn không có tiến độ gì, hãy xin gặp trực tiếp và trình bày rằng, nếu giáo như thế này thì giải quyết như thế nào? nếu giáo không có thời gian, thì liệu có giải pháp thứ 2 không? Thêm author để hỗ trợ revise, dùng dịch vụ bên ngoài? 
+
 Lý do revise báo chậm bao giờ cũng là giáo bận, và do không có deadline cho việc submit journal. Lý do khác là journal dài, mà bài mình viết thường khá tệ ở các bản nháp đầu tiên, nên đọc rất oải. 
-Việc tiếp theo nên làm đó là xin một buổi seminar, bạn sẽ trình bài bài báo đang viết để giáo hiểu được idea, từ đó giúp quá trình revise nhanh hơn. 
-Lời khuyên khác là chọn các tạp chí có special session mà có deadline. Hoặc giả deal với giáo là nộp đi, nếu được major thì ta sẽ revise kỹ. Khi có kết quả, có deadline rồi giáo sẽ buộc chú tâm hơn. 
+
+Việc tiếp theo nên làm đó là xin một buổi seminar, bạn sẽ trình bài bài báo đang viết để giáo hiểu được idea, từ đó giúp quá trình revise nhanh hơn. Lời khuyên khác là chọn các tạp chí có special session mà có deadline. Hoặc giả deal với giáo là nộp đi, nếu được major thì ta sẽ revise kỹ. Khi có kết quả, có deadline rồi giáo sẽ buộc chú tâm hơn. 
+
 
 #### - Deal về lương
 Bạn chỉ nên deal khi lương bạn thấp hơn mức trung bình, hơn lời giáo sư hứa, hoặc thấp hơn số lượng công việc bạn hoàn thành. Hoặc giả bạn gặp khó khăn về tài chính. Thường deal lương đừng hi vọng bạn được tăng lương không, mà theo đó trách nhiệm, và đề tài làm thêm cũng sẽ tăng theo. 
