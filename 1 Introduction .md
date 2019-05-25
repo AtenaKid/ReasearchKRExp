@@ -43,9 +43,10 @@ Ngoài ra “Tiến sĩ không phải là một tời giấy A4, không hẳn l�
 - Authoring a Ph.D.: How to Plan, Draft, Write and Finish a Doctoral Thesis or Dissertation
 
 TODO: 
-Phần 2. What do you want? Find your motivation (Động lực nghiên cứu của bạn là gì)
-Phần 3. How to work (deal) with your professor (Cách làm việc/thương lượng với giáo sư)
-Phần 4. Gain confidence – Being expert (Lấy tự tin – trở thành chuyên gia)
-Phần 5. Procrastination (Tính trì hoãn)
-Phần 6. Keep balance (Cân bằng cuộc sống)
+* Phần 2. What do you want? Find your motivation (Động lực nghiên cứu của bạn là gì)
+* Phần 3. How to work (deal) with your professor (Cách làm việc/thương lượng với giáo sư)
+* Phần 4. Gain confidence – Being expert (Lấy tự tin – trở thành chuyên gia)
+* Phần 5. Procrastination (Tính trì hoãn)
+* Phần 6. Keep balance (Cân bằng cuộc sống)
+
 Mình cũng muốn chia sẻ lâu rồi đấy. Cơ mà nay nhân tiện đang được nghỉ lễ, và đọc dòng chia xẻ của hot boy facebook
