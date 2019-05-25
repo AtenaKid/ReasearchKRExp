@@ -1,4 +1,4 @@
-## Phần 2.3 Cách deal với giáo sư
+## 3 Cách deal với giáo sư
 
 ### 1. Biết người biết ta
 
